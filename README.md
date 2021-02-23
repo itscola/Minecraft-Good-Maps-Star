@@ -1,4 +1,4 @@
-## 转载自我的博客: https://whitecola.top/blog/minecraft-maps-1/ (项目建设中...) 推荐去博客阅读
+## 转载自我的博客: https://whitecola.top/blog/minecraft-maps-1/ (项目建设中...) [推荐去博客阅读]   
 -----------------------
 
 ## 地图推荐角度
